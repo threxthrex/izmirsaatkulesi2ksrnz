@@ -1,1 +1,0 @@
-# izmirsaatkulesi2ksrnz
